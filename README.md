@@ -1,1 +1,2 @@
 # M-Rijal-Fadli-I
+UTS PRAK SISMIK B2
